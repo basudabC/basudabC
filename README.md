@@ -23,6 +23,7 @@
 📧 Email: [basudab.chowdhory@gmail.com](mailto:basudab.chowdhory@gmail.com)  
 🔗 LinkedIn: [linkedin.com/in/basudab007](https://www.linkedin.com/in/basudab007)  
 💻 GitHub: [github.com/basudabC](https://github.com/basudabC)  
+💼 Resume: [View My Resume](https://drive.google.com/file/d/1r0Jt3K91kdEzKKDEi95W1gMnaWBRVs2d/view?usp=sharing)  
 
 ## 😄 Pronouns: He/Him  
 
