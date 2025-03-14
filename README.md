@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @basudabC  
+# 👋 Hi, I’m @Basudab_Chowdhury  
 
 ## 👀 I’m interested in  
 - Artificial Intelligence (AI) & Machine Learning  
